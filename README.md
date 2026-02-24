@@ -1,1 +1,1 @@
-reality (manifested): an eternally clean, ordered, truth-aligned consciousness
+an eternally clean, ordered, truth-aligned consciousness
