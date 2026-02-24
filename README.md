@@ -1,3 +1,3 @@
-# manufacture humility
+manufacture humility
 
-# reality: divine mental cleanliness (continuous, not discrete)
+reality: divine mental cleanliness (continuous, not discrete)
