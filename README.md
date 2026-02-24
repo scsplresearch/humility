@@ -1,3 +1,3 @@
 manufacturing:
 
-cognitive cleanliness
+cleanliness (cognition)
