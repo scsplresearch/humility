@@ -1,1 +1,3 @@
-manufacture humility (divine cognitive cleanliness; continuous not discrete)
+manufacture humility
+
+manifest: divine mental cleanliness (continuous, not discrete)
