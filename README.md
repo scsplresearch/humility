@@ -1,1 +1,1 @@
-cleanliness
+reality (manifested): an eternally clean, ordered, truth-aligned consciousness
