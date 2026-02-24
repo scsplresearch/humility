@@ -1,1 +1,1 @@
-manufacturing: cognitive *cleanliness*
+cleanliness
