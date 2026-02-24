@@ -1,2 +1,3 @@
-# cognitive_stability_tool
-tool 1
+# manufacture humility
+
+# reality: divine mental cleanliness (continuous, not discrete)
