@@ -1,3 +1,5 @@
+# listen, above all else
+
 # go where productions take you
 
 # proper training first (learn how to construct the parts *properly*)
